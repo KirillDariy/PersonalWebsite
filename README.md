@@ -1,1 +1,1 @@
-welcome to my website
+hi i am gay
